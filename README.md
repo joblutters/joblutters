@@ -1,1 +1,1 @@
-Op weg van klantenservice naar automatisering.
+Transitie klantenservice → automatisering.
